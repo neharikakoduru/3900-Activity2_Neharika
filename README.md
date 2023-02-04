@@ -1,3 +1,3 @@
 # 3900-Activity2_Neharika
 
-This blog is a one stop for all food lovers to come and look at their favorite food.
+This webpage is a one stop for employers looking to hire and construct a reliable team! We represent individuals with curious minds and passionate personalities! Look no further, join our team and hire with us!
